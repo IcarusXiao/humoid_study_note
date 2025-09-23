@@ -1,0 +1,1 @@
+# humoid_study_note
